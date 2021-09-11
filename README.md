@@ -1,2 +1,2 @@
 # Surber
-와! 수버!! :surber: :surber:
+와! 숩버!! :surber: :surber:
